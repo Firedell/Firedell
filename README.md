@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Firedell (Viktor)
+- 👀 I’m interested in musi, i was a radio producer
+- 🌱 I’m currently learning a front-end developing, I want to start in IT.
+- I like to convers with different people, 
+- And I am happy to meet new people!
