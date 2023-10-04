@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Firedell (Viktor)
+- 👋 Hi, I’m @Fr_VikTor (Viktor)
 - 👀 I’m interested in musi, i was a radio producer
 - 🌱 I’m currently learning a front-end developing, I want to start in IT.
 - I like to convers with different people, 
